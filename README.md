@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/9MtPLbYw/IMG-4448.gif)
 
- ⠀⠀  ⠀⠀  ⠀⠀ I don't know anyone named mephone4s or teamchaotix?? theyre liars.
+  I don't know anyone named mephone4s or teamchaotix?? theyre liars.
 
 ![](https://i.postimg.cc/QdnGJVVq/Untitled1135-20250122043125.png)
 
